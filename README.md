@@ -1,3 +1,3 @@
-# Veri Bilimine Giriş - 1. ve 2. Hafta Ödevleri
+# Veri Bilimine Giriş - 1,2 ve 3. Hafta Ödevleri
 
 
